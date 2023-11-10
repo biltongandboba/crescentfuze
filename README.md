@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @crescentfuze
 - 👀 I’m interested in climbing, skiing, cars and motorsport, 3D design, science and physics
 - 🌱 I’m currently learning Blender
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on [not sure yet]
 - 📫 You can reach me @crescentfuze on Twitter
 
 <!---
